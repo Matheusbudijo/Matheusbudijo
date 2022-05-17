@@ -3,6 +3,6 @@ Sou Matheus, tenho 15 anos
 
 Santista🖤🤍, 
 
-Sou estudante do colégio Baldomero 
+Sou estudante do colégio Baldomero♧
 
                   MADE IN BRAZIL☆
